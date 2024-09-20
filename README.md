@@ -16,6 +16,6 @@ Here are some ideas to get you started:
  🌍 Connect with me
 
 - LinkedIn: [LinkedIn profile](https://www.linkedin.com/in/umi-diana-a9b36b2b6)
-- Twitter: [Instagram](https://www.instagram.com/nnkmtu.diana/)
+- Instagram: [Instagram](https://www.instagram.com/nnkmtu.diana/)
 
 
